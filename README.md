@@ -1,1 +1,0 @@
-Peer workforce development programs train individuals with lived experience to become certified professionals who support others navigating recovery. Research consistently shows that peer support specialists reduce hospital admissions, lower emergency department visits, and build trust in communities clinical staff often cannot reach.
